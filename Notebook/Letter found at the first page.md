@@ -8,3 +8,5 @@ It is not known when we will meet again. But until then. Stay safe my friend.
 Best regards,
 Your friend and mentor
 Deku Hollis
+
+[[Chapter 1]]
