@@ -6,4 +6,4 @@ It al began long ago. one day a grey blanket that drained all the colour washed 
 I don't know how I will chronicle it at this moment. I know that it will be a journal, but even those can be written in many ways. But that is enough for now, I can see the dark blanket coming again. So soon it will be time to say goodbye. At the end of this book you can find a list of some changes to my body which stay between jumps for more context.
 
 [[Letter found at the first page]] (extra info)
-[[Chapter 1]] 
+[[Chapter 1 - A guest arrives]] 

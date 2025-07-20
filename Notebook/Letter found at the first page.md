@@ -9,4 +9,4 @@ Best regards,
 Your friend and mentor
 Deku Hollis
 
-[[Chapter 1]]
+[[Chapter 1 - A guest arrives]]
