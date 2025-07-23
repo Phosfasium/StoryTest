@@ -34,3 +34,5 @@ head back to the city in the summer with frida.
 before winter: Harvest. prepare the wood, properly prepare guest room.
 Throughout winter: allard learns about primal, frida writes a thesis about both primal and muscles. dangers and how to get stronger in a safe way even if it's slower.
 Taran takes a liking to normal training. using both methods he jumps in strength over the winter.
+
+after winter, start part 2: the city
