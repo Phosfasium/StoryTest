@@ -54,4 +54,4 @@ Allard seems to be deep in thought for a bit while looking closely and her and T
 
 The couple moves to their bedroom and get ready for bed. "Why did you suddenly change your mind. You were so wary of him." Frida says. "He looked tired." "Tired? what do you mean." "The way he looked around. As if he should run at any moment. I know that look. He has been in survival mode for too long." Frida chuckles. "You big softy." Taran grumbles a bit. "Yeah yeah" Frida replies and gives him a kiss. "Goodnight." She says as they both, as if by magic, instantly fall asleep.
 
-[[Chapter 2 - An eventful morning]]
+[[Chapter 1 end]]

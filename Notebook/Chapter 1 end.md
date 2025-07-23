@@ -12,3 +12,5 @@ It causes marks that look like stretch marks. which tells me that it causes the 
 The marks were on everyone's neck. according to them this had to do with holding up your head as a baby. Besides that, Taran had marks across his arms and legs, while Frida, his wife, had marks around her fingers and wrists. from their description of how they use primal, I expect that this has something to do with muscles.
 
 This is all I know for now. Tomorrow I will ask for more details, I can still handle 4 more days without sleep, so tonight I will keep my guard up. I have not been outside yet so I don't know where I am except for a forest that I saw from the window. so it is also key to find out if there are any roads leading from this house.
+
+[[Chapter 2 - An eventful morning]]
